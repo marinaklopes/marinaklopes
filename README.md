@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @marinaklopes
+- 👀 I’m interested in technology people :)
+- ✨ I’m currently learning psychology!
+- 📫 How to reach me: +55 47 99644-4352 | marina.lopes@gruposelecionar.com.br
