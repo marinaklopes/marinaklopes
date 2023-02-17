@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @marinaklopes
 - 👀 I’m interested in technology people :)
-- ✨ I’m currently learning psychology!
-- 📫 How to reach me: +55 47 99773-4337 | marina.lopes@premiersoft.net
+- 📫 How to reach me: +55 47 9776-9453 | marina@kutir.onmicrosoft.com
